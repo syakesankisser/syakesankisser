@@ -3,4 +3,4 @@
                                               ⋅  he ♰ they
                     fndms ; okegom, mysme, creepypasta, CoD, dead plate, GI, HSR, Ranfren, IDV, LADS, slow damage
                                           🐾 . dont copy ponies ty !
-                              read --> https://cielca.straw.page/)https://cielca.straw.page/     
+                              read --> https://cielca.straw.page/   
