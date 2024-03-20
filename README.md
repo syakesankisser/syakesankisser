@@ -12,6 +12,6 @@
 
   ![gif jumpscare](https://media.discordapp.net/attachments/1137180912229040150/1195477093316829324/91efdbd6.gif?ex=65e2464d&is=65cfd14d&hm=44982e47595514d0cee605d496cb8da750a1372e4d0baf2c0727b8ff05debe43&=&width=40&height=40) .          𝜗𝜚   ‧     ˚ dont copy ponies ty ! 
                               
-  [know more](https://rentry.co/lobcox) 
+  [know more](https://rentry.co/welcciel) 
    
 ![gif of blood dripping up](https://media.discordapp.net/attachments/1137180912229040150/1209294596933419068/115a052a.gif?ex=65e6665b&is=65d3f15b&hm=1e1cdaca39a521e74f148368fe4f23b100cdad251463fe0d5648816b2367190c&=&width=2000&height=44)
